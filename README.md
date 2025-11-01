@@ -12,6 +12,6 @@ It has:
 ---
 
 ![HOMEPAGE](https://i.imgur.com/ndoRhE9.png)
-![HOMEPAGE](https://i.imgur.com/a/8PoGh1I)
-![HOMEPAGE](https://i.imgur.com/a/zygU2JE)
+![HOMEPAGE](https://i.imgur.com/bGqbjd5.png)
+![HOMEPAGE](https://i.imgur.com/o9QdGJZ.png)
 
