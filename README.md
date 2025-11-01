@@ -11,7 +11,7 @@ It has:
 
 ---
 
-![HOMEPAGE](https://imgur.com/a/BwBnugv)
+![HOMEPAGE](https://i.imgur.com/ndoRhE9.png)
 ![HOMEPAGE](https://i.imgur.com/a/8PoGh1I)
 ![HOMEPAGE](https://i.imgur.com/a/zygU2JE)
 
